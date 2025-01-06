@@ -1,16 +1,35 @@
+<p align="center">
+<img src="https://tinyurl.com/5t36fu8r" width="450" height="50" border="10"/>
+</p>
+
 <p align="center"
   
-***Isaacx***
+ι ♡ mყ boყfrιᥱᥒd <ins>**@BLINKGONE-TILL**</ins>
 
 <p align="center"
 
-<p align="center">
-<img src="https://i.pinimg.com/736x/26/a3/92/26a392922ecc6b3694a1de68cf728e82.jpg" width="600" height="210" border="10"/>
-</p>
 
+<p align="center"
+
+ *˖ㅤㅤ۫ㅤㅤ ೀ ㅤ۫*ㅤ **愛** *˖ㅤㅤ۫ㅤㅤ๑*
+ 
+
+<p align="center"
+  
 <p align="center">
-Heya I'm Isaac ! This is still a wip while I'm tryna figure this whole thing out.
+<img src="https://tinyurl.com/ms4929pj" width="500" height="310" border="10"/>
 </p>
+<p align="center"
+  
+**﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉**
+
+<p align="center"
+<p align="center"
+   
+ ୨୧ ꒰ **Isaac** ; *He / Him* ꒱ ୨୧
+
+<p align="center"
+  
 <p align="center">
-<img src="https://64.media.tumblr.com/948f7a77f047bd8afc29a539eb1f0515/5bc533c11613f9df-c8/s1280x1920/46f22dab72f8e072735557faad2cc3944fac6f4b.pnj" width="400" height="20" border="10"/>
+<img src="https://tinyurl.com/5t36fu8r" width="450" height="50" border="10"/>
 </p>
