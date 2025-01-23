@@ -31,7 +31,7 @@
 <p align="center"
 <p align="center"
    
-ᶻ𝗓 ⋆.˚ Hi, I'm Isaac or Isa for short. I usually hang out around the genshin area, I'm rarely anywhere else. Feel free to interact with me, I'm not mean I promise LOL. Most info about me are linked in my rentry. Thank you for reading this, bye bye! have a great evening / day! ᶻ𝗓 ⋆.˚
+ᶻ𝗓 ⋆.˚ Hi, I'm Isaac or Isa for short. I usually hang out around the genshin area, I'm rarely anywhere else. I'm basically off tab most of the time but I do check ponytown during it a few times so feel free to interact with me or write to me on my strawpage or retrospring! I'm not mean I promise LOL. Most info about me or other links are linked in my rentry. Thank you for reading this, bye bye! have a great evening / day! ᶻ𝗓 ⋆.˚
 
 <p align="center"
   
