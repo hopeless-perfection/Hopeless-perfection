@@ -2,12 +2,6 @@
 <img src="https://tinyurl.com/5t36fu8r" width="450" height="50" border="10"/>
 </p>
 
-<p align="center"
-  
-ι ♡ mყ boყfrιᥱᥒd <ins>**@BLINKGONE-TILL**</ins>
-
-<p align="center"
-
 
 <p align="center"
 
