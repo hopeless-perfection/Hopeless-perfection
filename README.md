@@ -1,8 +1,6 @@
 <p align="center">
-<img src="https://tinyurl.com/5t36fu8r" width="450" height="50" border="10"/>
+<img src="https://64.media.tumblr.com/8f61c76e97d84159837edde774613cf7/1c3d56859c9f1f72-2c/s2048x3072/62797e25c6d1873c2a57612227111b31f8af6149.pnj" width="650" height="400" border="10"/>
 </p>
-
-
 <p align="center"
 
  *˖ㅤㅤ۫ㅤㅤ ೀ ㅤ۫*ㅤ **愛** *˖ㅤㅤ۫ㅤㅤ๑*
@@ -11,16 +9,16 @@
 <p align="center"
   
 <p align="center">
-<img src="https://64.media.tumblr.com/998416258f468da11f817c7d3056280e/161572a4000eeb58-49/s540x810/8e22eda9a38a7294474de019b2e21385111f5835.pnj" width="500" height="310" border="10"/>
+<img src="https://64.media.tumblr.com/a135d9723d1190f8fd6cd654698791c9/449000cfc7c0fbcd-36/s540x810/9d5a4cb7affc24f7604b387dce8710645d60b5d7.pnj" width="500" height="500" border="10"/>
 </p>
-<p align="center"
-  
-**﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉**
+
+<p align="center">
+‎ ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://64.media.tumblr.com/0fc02e9be7b31dcfad1e532479db9459/e2ebd03a72dcf654-4b/s2048x3072/c995499562838960c20f1ec35411cd658cdd0226.pnj" width="350" height="200" border="10"/>
+</p>
 
 <p align="center"
-<p align="center"
    
- ୨୧ ꒰ **Isaac** ; *He / Him* ꒱ ୨୧
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎   ୨୧ ꒰ **Isaac** ; *He / Him* ꒱ ୨୧
 
 <p align="center"
 <p align="center"
@@ -35,10 +33,5 @@
 <p align="center"
   
 <p align="center">
-<img src="https://tinyurl.com/5t36fu8r" width="450" height="50" border="10"/>
+<img src="https://64.media.tumblr.com/8f61c76e97d84159837edde774613cf7/1c3d56859c9f1f72-2c/s2048x3072/62797e25c6d1873c2a57612227111b31f8af6149.pnj" width="650" height="400" border="10"/>
 </p>
-
-<p align="center">
-<img src="https://pbs.twimg.com/media/GkBVRxjWAAEURB1?format=png&name=360x360" width="500" height="150" border="10"/>
-</p>
-<p align="center"
